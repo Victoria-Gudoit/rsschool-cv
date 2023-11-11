@@ -1,1 +1,1 @@
-https://Victoria-Gudoit.github.io/rsschool-cv/cv
+https://Victoria-Gudoit.github.io/rsschool-cv/
